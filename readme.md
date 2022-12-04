@@ -1,0 +1,2 @@
+video recommend:【20211215【学无止境：深度连续学习】Panel】 https://www.bilibili.com/video/BV1oF411q7fw/?share_source=copy_web&vd_source=f9de850668a44deafca67477a2b4d9c6
+【(强推)李宏毅2021/2022春机器学习课程】 https://www.bilibili.com/video/BV1Wv411h7kN/?p=131&share_source=copy_web&vd_source=f9de850668a44deafca67477a2b4d9c6
